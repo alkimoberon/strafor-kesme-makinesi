@@ -1,0 +1,1 @@
+# strafor-kesme-makinesi
